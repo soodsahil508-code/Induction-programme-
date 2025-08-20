@@ -119,13 +119,13 @@ Our second lecture was taken by our seniors it was of p2p where they tought us a
 
 
 Day 13
-On 11th day of my college i woke up at 6 AM.After having breakfast i get ready for my classes.My first lecture started at 9:30 AM, it was lecture of Mathematics. Our professor Sandeep Kaur introduced herself with all the students and tought us basics of derivatives, she asked the students formulas of basic mathematics we studied in our class 11th and 12th.
+On 13th day of my college i woke up at 6 AM.After having breakfast i get ready for my classes.My first lecture started at 9:30 AM, it was lecture of Mathematics. Our professor Sandeep Kaur introduced herself with all the students and tought us basics of derivatives, she asked the students formulas of basic mathematics we studied in our class 11th and 12th.
 
 Our second lecture was taken by our seniors it was of p2p where they tought us about coding and it's basic after visiting gym i ate food in the mess share some time with my friends and it was all .
 
 
-Day 12
+Day 14
 
-On 13th day of my college i woke up at 6 AM.After having breakfast i get ready for my classes.My first lecture started at 9:30 AM, it was lecture of Mathematics. Our professor Sandeep Kaur introduced herself with all the students and tought us basics of derivatives, she asked the students formulas of basic mathematics we studied in our class 11th and 12th.
+On 14th day of my college i woke up at 6 AM.After having breakfast i get ready for my classes.My first lecture started at 9:30 AM, it was lecture of Mathematics. Our professor Sandeep Kaur introduced herself with all the students and tought us basics of derivatives, she asked the students formulas of basic mathematics we studied in our class 11th and 12th.
 
 Our second lecture was taken by our seniors it was of p2p where they tought us about coding and it's basic after visiting gym i ate food in the mess share some time with my friends and it was all .
